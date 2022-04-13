@@ -1,1 +1,1 @@
-# 1_skuska
+# Stránka tu bude raz
